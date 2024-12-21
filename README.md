@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DuckyCheeseis
+- 👀 I’m interested in sanitizing milk
+- 🌱 I’m currently learning about your mom
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: you cant you giggler
+- 😄 Pronouns: he/him >:)
+- ⚡ Fun fact: i am not your average person AHHAHAHAH
